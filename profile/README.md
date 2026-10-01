@@ -1,4 +1,4 @@
-## COAST PCL Organizational Information
+## COAST PCL | UC Santa Barbara and Rutgers
 
 ### Under construction.
 
